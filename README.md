@@ -1,3 +1,4 @@
+This is a work in progress check back occasional for new additions!
 - 👋 Hi, I’m @nl3designz
 - 👀 I’m interested in electronics, automation, and electrical engineering.
 - 🌱 I’m currently learning how to make my talents available for the world.
